@@ -1,4 +1,4 @@
-#### Oi, eu sou o Gok.. Brinks 😂 Eu sou o Diego 👋
+#### Oi, eu sou o Goku... Brinks! 😂 Eu sou o Diego 👋
 
 - Desenvolvedor Front-End/Mobile
 
